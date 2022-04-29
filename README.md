@@ -1,2 +1,0 @@
-# getsetzo
-ajdjkasjdkjasjkd
